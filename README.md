@@ -1,2 +1,13 @@
-# s68bet-info
-S68BET | Platform online dengan sistem cepat dan stabil. Akses informasi S68BET, layanan digital, dan pembaruan terbaru secara praktis
+## S68BET – Platform Digital Terpercaya
+
+S68BET adalah platform online dengan sistem akses cepat dan stabil
+yang dirancang untuk pengalaman pengguna yang optimal.
+
+👉 Kunjungi platform resmi:  
+https://s68bet.co.com
+
+### Keunggulan S68BET
+- Akses cepat & ringan
+- Sistem stabil
+- Dukungan pengguna aktif
+
